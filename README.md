@@ -5,7 +5,7 @@
                                                      📧 sachinrastogipvt@gmail.com
                                                  🎨 Portfolio: https://sachinrastogi.in/
                                    💼 Linkedin:- https://www.linkedin.com/in/sachin-rastogi-065895162/
-                                            ✨  Twitter:- https://twitter.com/sachinrastogiii ✨
+                                            ✨ Twitter:- https://twitter.com/sachinrastogiii ✨
                                  🧑‍ Hasnode Blogs:- https://sachinrastogi.hashnode.dev/how-to-become-a-ux-designer 
 
                                   
