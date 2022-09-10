@@ -6,7 +6,7 @@
                                       
                                                
                                  
- 🎨 Portfolio: https://sachinrastogi.in/
+ 🎨 Portfolio: http://sachinrastogi.in/
 
 💼 Linkedin:- https://www.linkedin.com/in/sachin-rastogi-065895162/
 
