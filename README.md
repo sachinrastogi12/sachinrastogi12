@@ -1,5 +1,5 @@
 # Hi, I'm Sachin! 👋
-## 🔥 Software Developer grinding hard to make something cool
+* 🔥 Software Developer grinding hard to make something cool
 * ✨ Favorite Tech: JavaScript, React, Java ...
 * 📓 I’m currently learning DS and Algo... 😭
 * 📧 sachinrastogipvt@gmail.com
